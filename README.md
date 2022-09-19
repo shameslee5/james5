@@ -1,1 +1,1 @@
-# james5
+Even if your [treadmill](https://homefocus.in/best-treadmill-under-20000/) has extra cushioning, the high impact from jogging or running can still cause joint pain in your ankles, knees, or hips. If your joints start to hurt, slow your pace or stop altogether.
